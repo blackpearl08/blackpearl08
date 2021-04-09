@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @blackpearl08
+- 👀 I’m interested in AI and medical DB
+- 🌱 I’m currently learning at Ewha Woman's University
